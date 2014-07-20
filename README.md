@@ -11,3 +11,8 @@ That is all for now.
 
 thanks!
 David
+
+
+you can see the finshed site if you mosey on down to http://mlogan.us
+
+he's a very cool artist too!
